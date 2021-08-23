@@ -5,6 +5,14 @@ title: Sermons
 published: true
 ---
 
+### August 22, 2021
+
+<div class="cabin-video-wrapper">
+    <div class="cabin-video">
+        <iframe class="cabin-video-frame" width="560" height="315" src="https://www.youtube.com/embed/rXat3U-gJsg" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+    </div>
+</div>
+
 ### May 16, 2021
 
 <div class="cabin-video-wrapper">
