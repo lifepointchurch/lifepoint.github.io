@@ -11,7 +11,7 @@ published: true
 
 **REGISTRATION IS CLOSED**
 
-**PICTURE DAY:**
+**PICTURE DAY - September 1, 2021:**
 Please arrive 15 minutes before your team’s scheduled photo time.
 
 - 4:00 (arrive at 3:45):
