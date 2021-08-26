@@ -9,15 +9,38 @@ published: true
 
 <!--<a class="upward-register-btn" href="https://registration.upward.org/UPW80124">REGISTER NOW</a>-->
 
-**Flag Football**
+**REGISTRATION IS CLOSED**
 
-REGISTER NOW
+**PICTURE DAY:**
+Please arrive 15 minutes before your team’s scheduled photo time.
 
-- **When:** August – November 2021
-- **Cost:** $125 ($10 sibling discount available)
-- **Head Coach:** $50 refund for head coach only
-- **Includes:** 8 Game Season, Uniforms with Shorts & Flag Belts
-- **Grades:** 1st—6th, Including kindergartener’s born before 6/30/15
+- 4:00 (arrive at 3:45):
+	Buccaneers, 
+	Rams,
+	Cowboys
+
+- 4:15 (arrive at 4:00):
+	49ers,
+	Titans,
+	Steelers
+
+- 4:30 (arrive at 4:15):
+	Falcons,
+	Broncos,
+	Patriots
+
+- 4:45 (arrive at 4:30):
+	Seahawks,
+	Dolphins,
+	Lions
+
+- 5:00 (arrive at 4:45):
+	Colts,
+	Packers
+
+- 5:15 (arrive at 5:00):
+	Raiders,
+	Chargers
 
 ### About
 
@@ -33,9 +56,6 @@ Established in 1995, Upward Sports is the world’s largest Christian youth spor
 Oakdale Upward Sports is so blessed by the service of volunteers, who help ensure that our programs run smoothly and soundly. There are a variety of different volunteer opportunities available for our Flag Football program. Email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) for details.
 
 **Important dates**
-- Registration Ends – July 31, 2021
-- Evaluations – July 31, 2021
-- Practice Begins – Week of August 23, 2021
 - Picture Day – September 1, 2021
 - Games Begin – September 11, 2021
 
