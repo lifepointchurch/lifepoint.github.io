@@ -11,36 +11,9 @@ published: true
 
 **REGISTRATION IS CLOSED**
 
-**PICTURE DAY - September 1, 2021:**
-Please arrive 15 minutes before your team’s scheduled photo time.
+Registration for the Fall 2022 season will open in April 2022
 
-- 4:00 (arrive at 3:45):
-	Buccaneers, 
-	Rams,
-	Cowboys
 
-- 4:15 (arrive at 4:00):
-	49ers,
-	Titans,
-	Steelers
-
-- 4:30 (arrive at 4:15):
-	Falcons,
-	Broncos,
-	Patriots
-
-- 4:45 (arrive at 4:30):
-	Seahawks,
-	Dolphins,
-	Lions
-
-- 5:00 (arrive at 4:45):
-	Colts,
-	Packers
-
-- 5:15 (arrive at 5:00):
-	Raiders,
-	Chargers
 
 ### About
 
