@@ -5,6 +5,16 @@ title: Sermons
 published: true
 ---
 
+### November 14, 2021
+
+<a href="https://res.cloudinary.com/deqkp2xjs/video/upload/v1636999964/audio/sermon_11_14_2021_2.mp3" download>Download Audio</a>
+
+<div class="cabin-video-wrapper">
+    <div class="cabin-video">
+        <iframe class="cabin-video-frame" width="560" height="315" src="https://www.youtube.com/embed/0a9sL9pakFY" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+    </div>
+</div>
+
 ### August 22, 2021
 
 <div class="cabin-video-wrapper">
