@@ -7,6 +7,8 @@ published: true
 
 ### November 14, 2021
 
+Guest speaker: Pastor Ron Huson
+
 <a href="https://res.cloudinary.com/deqkp2xjs/video/upload/v1636999964/audio/sermon_11_14_2021_2.mp3" download>Download Audio</a>
 
 <div class="cabin-video-wrapper">
@@ -16,6 +18,8 @@ published: true
 </div>
 
 ### August 22, 2021
+
+Guest speaker: Pastor Kevin Clancey
 
 <div class="cabin-video-wrapper">
     <div class="cabin-video">
