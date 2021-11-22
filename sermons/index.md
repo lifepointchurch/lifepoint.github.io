@@ -5,6 +5,14 @@ title: Sermons
 published: true
 ---
 
+### November 21, 2021
+
+<div class="cabin-video-wrapper">
+    <div class="cabin-video">
+        <iframe class="cabin-video-frame" width="560" height="315" src="https://www.youtube.com/embed/o3YceG6jNCw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+    </div>
+</div>
+
 ### November 14, 2021
 
 Guest speaker: Pastor Ron Huson
