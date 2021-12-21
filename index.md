@@ -18,6 +18,13 @@ published: true
 
 Sermons available [here](/sermons).
 
+<div class="cabin-video-wrapper">
+    <div class="cabin-video">
+        <iframe class="cabin-video-frame" width="560" height="315" src="https://www.youtube.com/embed/1ZbALTDbAxo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+    </div>
+</div>
+
+
 <!--
 **Free Tutoring**
 
