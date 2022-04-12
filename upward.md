@@ -9,9 +9,9 @@ published: true
 
 <a class="upward-register-btn" href="https://registration.upward.org/UPW81887">REGISTER NOW</a>
 
-**REGISTRATION IS CLOSED**
+**REGISTRATION IS OPEN**
 
-Registration for the Fall 2022 season will open in April 2022
+Registration for the fall 2022 season is open to grades 1st-6th - including kindergartner’s born before 6/30/16.
 
 
 
@@ -29,15 +29,18 @@ Established in 1995, Upward Sports is the world’s largest Christian youth spor
 Oakdale Upward Sports is so blessed by the service of volunteers, who help ensure that our programs run smoothly and soundly. There are a variety of different volunteer opportunities available for our Flag Football program. Email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) for details.
 
 **Important dates**
-- Picture Day – September 1, 2021
-- Games Begin – September 11, 2021
+- Evaluations - July 9, 2022
+- Practices Begin - Week of August 22, 2022
+- Picture Day – August 27, 2022
+- Games Begin – September 10, 2022
+
 
 **Cancellation Policy**
 If league is cancelled due to Covid-19 and/or OJUSD shutdowns, refunds will be given out as follows:
-- Prior to 8/5/21 – Full Refund
-- After 8/5/21 – 40% Refund
-- After 9/11/21 – 20% Refund
-- After 10/2/21 – 0% Refund
+Prior to 8/1/22 – Full Refund
+After 8/1/22 – 40% Refund
+After 9/10/22 – 20% Refund
+After 10/1/22 – 0% Refund
 
 **Practice and game location**
 
