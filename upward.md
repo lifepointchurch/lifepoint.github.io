@@ -7,11 +7,9 @@ published: true
 
 # Upward Sports
 
-<a class="upward-register-btn" href="https://registration.upward.org/UPW81887">REGISTER NOW</a>
+**REGISTRATION IS CLOSED**
 
-**REGISTRATION IS OPEN**
-
-Registration for the fall 2022 season is open to grades 1st-6th - including kindergartner’s born before 6/30/16.
+Registration for the fall 2022 season is CLOSED.
 
 
 
