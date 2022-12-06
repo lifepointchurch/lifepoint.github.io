@@ -7,7 +7,7 @@ published: true
 
 # Upward Sports
 
-REGISTER NOW
+<a class="upward-register-btn" href="https://registration.upward.org/UPW83679">REGISTER NOW</a>
 
 ## OAKDALE UPWARD SPORTS VOLLEYBALL SPRING LEAGUE 2023: 
 ### BOYS AND GIRLS, GRADES 1-8
