@@ -30,7 +30,7 @@ Fees: $125; 8 weeks, includes a long-sleeved jersey (girl/women) OR a short-slee
 
 Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
 
-LEAGUE BEGINS SATURDAY, MARCH 18, 2023.
+**LEAGUE BEGINS SATURDAY, MARCH 18, 2023**
 
 League Dates (times are TBD):
 
