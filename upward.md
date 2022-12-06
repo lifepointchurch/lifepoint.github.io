@@ -7,9 +7,46 @@ published: true
 
 # Upward Sports
 
-**REGISTRATION IS CLOSED**
+REGISTER NOW
 
-Registration for the fall 2022 season is CLOSED.
+OAKDALE UPWARD SPORTS SPRING LEAGUE 2023: 
+BOYS AND GIRLS, GRADES 1-8
+
+LOCATION: 
+OAKDALE JUNIOR HIGH SCHOOL 
+400 S MAGG AVE. 
+OAKDALE, CA 95361
+
+This is a Saturday only league that focuses on fundamentals. 
+Players will be placed on teams after the (2) weekday clinics.
+NOTE: 1-3 graders may not be placed on a specific team, instead they may break off into various groups each week for game play.
+
+***There is a short practice/warm-up before each game. There are no other practices
+during the week.
+
+Volunteers needed to help organize team play.  When registering, please register as a coach.
+
+Fees: Grades 1-8 $125 (8 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved shirt (boy/men) and a volleyball.
+
+Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
+
+LEAGUE BEGINS SATURDAY, MARCH 18, 2023.
+League Dates (times are TBD)
+3/18/2023 
+3/25/2023 
+4/1/2023 
+4/22/2023 
+4/29/2023 
+5/6/2023 
+5/13/2023 
+5/20/2023 
+
+***Included Clinics
+MARCH 13, 2023
+March 15, 2023
+
+Clinic days will give players opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants will learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
+
 
 
 
@@ -17,14 +54,14 @@ Registration for the fall 2022 season is CLOSED.
 
 **As an Upward Sports PARENT**
 
-You will see your young athlete develop in Football skills and so much more. Upward Sports firmly believes that its 360 Progression offers the most complete sports experience possible for your young athletes as they grow both on and off the court or field of competition.
+You will see your young athlete develop in Volleyball skills and so much more. Upward Sports firmly believes that its 360 Progression offers the most complete sports experience possible for your young athletes as they grow both on and off the court or field of competition.
 
 **TRANSFORM the life of your young athlete**
 
-Established in 1995, Upward Sports is the world’s largest Christian youth sports provider. Upward Sports is the only organization that offers the [360 Progression™](https://www.upward.org/about/360progression), a uniquely designed total sports experience that adapts and expands as players grow in their personal athletic journeys. The 360 Progression develops total athletes mentally, athletically, spiritually, and socially – producing players who excel both on and off the field.
+Established in 1995, Upward Sports is the world’s largest Christian youth sports provider. Upward Sports is the only organization that offers the [360 Progression™](https://www.upward.org/about/360progression), a uniquely designed total sports experience that adapts and expands as players grow in their personal athletic journeys. The 360 Progression develops total athletes mentally, athletically, spiritually, and socially – producing players who excel both on and off the court.
 
 **Serve as an Upward Sports VOLUNTEER**
-Oakdale Upward Sports is so blessed by the service of volunteers, who help ensure that our programs run smoothly and soundly. There are a variety of different volunteer opportunities available for our Flag Football program. Email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) for details.
+Oakdale Upward Sports is so blessed by the service of volunteers, who help ensure that our programs run smoothly and soundly. There are a variety of different volunteer opportunities available for our Volleyball program. Email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) for details.
 
 **Important dates**
 - Evaluations - July 9, 2022
@@ -33,18 +70,12 @@ Oakdale Upward Sports is so blessed by the service of volunteers, who help ensur
 - Games Begin – September 10, 2022
 
 
-**Cancellation Policy**
-If league is cancelled due to Covid-19 and/or OJUSD shutdowns, refunds will be given out as follows:
-Prior to 8/1/22 – Full Refund
-After 8/1/22 – 40% Refund
-After 9/10/22 – 20% Refund
-After 10/1/22 – 0% Refund
-
 **Practice and game location**
 
-Sierra View Elementary School<br />
-1323 E J St<br />
-Oakdale, CA  95361
+OAKDALE JUNIOR HIGH SCHOOL 
+400 S MAGG AVE. 
+OAKDALE, CA 95361
+
 
 **Contact**
 
