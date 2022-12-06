@@ -43,7 +43,7 @@ League Dates (times are TBD):
 - 5/13/2023
 - 5/20/2023
 
-Included Clinics:
+**Included Clinics:**
 
 - 3/13/2023
 - 3/15/2023
@@ -65,10 +65,9 @@ Established in 1995, Upward Sports is the world’s largest Christian youth spor
 Oakdale Upward Sports is so blessed by the service of volunteers, who help ensure that our programs run smoothly and soundly. There are a variety of different volunteer opportunities available for our Volleyball program. Email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) for details.
 
 **Important dates**
-- Evaluations - July 9, 2022
-- Practices Begin - Week of August 22, 2022
-- Picture Day – August 27, 2022
-- Games Begin – September 10, 2022
+- Clinics - March 13 and 15, 2023
+- Practices / Games Begin - March 18, 2023
+- Picture Day – March 18, 2023
 
 
 **Practice and game location**
