@@ -5,11 +5,11 @@ permalink: upward.html
 published: true
 ---
 
-# Upward Sports
+# Oakdale Upward Sports
 
 <a class="upward-register-btn" href="https://registration.upward.org/UPW83679">REGISTER NOW</a>
 
-## OAKDALE UPWARD SPORTS VOLLEYBALL SPRING LEAGUE 2023: 
+## VOLLEYBALL SPRING LEAGUE 2023: 
 ### BOYS AND GIRLS, GRADES 1-8
 
 LOCATION: 
@@ -26,7 +26,7 @@ during the week.
 
 Volunteers needed to help organize team play.  When registering, please register as a coach.
 
-Fees: Grades 1-8 $125 (8 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved shirt (boy/men) and a volleyball.
+Fees: $125; 8 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved shirt (boy/men) and a volleyball.
 
 Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
 
