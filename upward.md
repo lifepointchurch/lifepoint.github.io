@@ -9,20 +9,20 @@ published: true
 
 <a class="upward-register-btn" href="https://registration.upward.org/UPW83679">REGISTER NOW</a>
 
-## VOLLEYBALL SPRING LEAGUE 2023: 
+## VOLLEYBALL SPRING LEAGUE 2023
 ### BOYS AND GIRLS, GRADES 1-8
 
-LOCATION: 
-OAKDALE JUNIOR HIGH SCHOOL 
-400 S MAGG AVE. 
-OAKDALE, CA 95361
+**Location:**<br>
+Oakdale Junior High School<br>
+400 S Maag Ave<br>
+Oakdale, CA 95361
 
-This is a Saturday only league that focuses on fundamentals. 
+This is a Saturday only league that focuses on fundamentals.
 Players will be placed on teams after the (2) weekday clinics.
-NOTE: 1-3 graders may not be placed on a specific team, instead they may break off into various groups each week for game play.
+_Note: 1-3 graders may not be placed on a specific team, instead they may break off into various groups each week for game play._
 
-***There is a short practice/warm-up before each game. There are no other practices
-during the week.
+**There is a short practice/warm-up before each game. There are no other practices
+during the week.**
 
 Volunteers needed to help organize team play.  When registering, please register as a coach.
 
@@ -31,23 +31,24 @@ Fees: $125; 8 weeks, includes a long-sleeved jersey (girl/women) OR a short-slee
 Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
 
 LEAGUE BEGINS SATURDAY, MARCH 18, 2023.
-League Dates (times are TBD)
-3/18/2023 
-3/25/2023 
-4/1/2023 
-4/22/2023 
-4/29/2023 
-5/6/2023 
-5/13/2023 
-5/20/2023 
 
-***Included Clinics
-MARCH 13, 2023
-March 15, 2023
+League Dates (times are TBD):
+
+- 3/18/2023
+- 3/25/2023
+- 4/1/2023
+- 4/22/2023
+- 4/29/2023
+- 5/6/2023
+- 5/13/2023
+- 5/20/2023
+
+Included Clinics:
+
+- 3/13/2023
+- 3/15/2023
 
 Clinic days will give players opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants will learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
-
-
 
 
 ### About
@@ -72,8 +73,8 @@ Oakdale Upward Sports is so blessed by the service of volunteers, who help ensur
 
 **Practice and game location**
 
-OAKDALE JUNIOR HIGH SCHOOL 
-400 S MAGG AVE. 
+OAKDALE JUNIOR HIGH SCHOOL
+400 S MAGG AVE.
 OAKDALE, CA 95361
 
 
