@@ -5,11 +5,11 @@ permalink: upward.html
 published: true
 ---
 
-# Upward Sports
+# Oakdale Upward Sports
 
 REGISTER NOW
 
-## OAKDALE UPWARD SPORTS VOLLEYBALL SPRING LEAGUE 2023: 
+## VOLLEYBALL SPRING LEAGUE 2023: 
 ### BOYS AND GIRLS, GRADES 1-8
 
 LOCATION: 
