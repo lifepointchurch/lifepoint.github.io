@@ -12,6 +12,8 @@ published: true
 ## VOLLEYBALL SPRING LEAGUE 2023
 ### BOYS AND GIRLS, GRADES 1-8
 
+**REGISTRATION ENDS JANUARY 31, 2023**
+
 **Location:**<br>
 Oakdale Junior High School<br>
 400 S Maag Ave<br>
