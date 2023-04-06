@@ -9,15 +9,13 @@ published: true
 
 <a class="upward-register-btn" href="https://registration.upward.org/UPW84132">REGISTER NOW</a>
 
-## FLAG FOOTBALL FALL LEAGUE 2023
-### BOYS AND GIRLS, GRADES 1-6: 
-Including kindergartener's born before 6/30/17
+# FLAG FOOTBALL FALL LEAGUE 2023
+## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
 
-Price: $125/player (sibling discounts available)
-
-HEAD COACHES: All head coaches will receive a **discount code,** waiving all player fees. If interested in being a head coach, please contact the league PRIOR to registering.
-
+Price: $125/player (sibling discounts available)<br>
 Includes: 8 game season, reversible jersey, shorts and flag belts
+
+_**HEAD COACHES:**_ All head coaches will receive a **discount code,** waiving all player fees. If interested in being a head coach, please contact the league PRIOR to registering.
 
 **REGISTRATION ENDS JULY 8, 2023**
 
