@@ -12,7 +12,7 @@ published: true
 ## FLAG FOOTBALL FALL LEAGUE 2023
 ### BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
 
-Price: $125/player (sibling discounts available)
+Price: $125/player (sibling discounts available)<br>
 HEAD COACHES: All head coaches will receive a **discount code,** waiving all player fees. If interested in being a head coach, please contact the league PRIOR to registering.
 
 Includes: 8 game season, reversible jersey, shorts and flag belts
@@ -20,40 +20,40 @@ Includes: 8 game season, reversible jersey, shorts and flag belts
 **REGISTRATION ENDS JULY 8, 2023**
 
 ### FAQs
-Q. Can my child play soccer/baseball and flag football?
-A.  We **highly recommend**__ your child participate in only one sport per season.  Both teams suffer when players cannot fully commit, and it makes it difficult for coaches to establish game play.  Oakdale Upward Sports will not make any special accommodations for multi-sport athletes.
+**Q. Can my child play soccer/baseball and flag football?**<br>
+A.  We **highly recommend** your child participate in only one sport per season.  Both teams suffer when players cannot fully commit, and it makes it difficult for coaches to establish game play.  Oakdale Upward Sports will not make any special accommodations for multi-sport athletes.
 
-Q. Will there be a make-up picture day?
+**Q. Will there be a make-up picture day?**<br>
 A. No.  There will only be 1 picture day. This date can be found in the Important Dates section on the website as well as in your registration confirmation email.
 
-Q. Can I request a coach or teammate?
+**Q. Can I request a coach or teammate?**<br>
 A.  Coaches draft teams, therefore making it impossible for requests to be met.
 
-Q. Can I request a specific practice day?
+**Q. Can I request a specific practice day?**<br>
 A.  You can put in a request; however, practice days / times are at the coach’s discretion.  There is no guarantee we can accommodate your request.
 
-Q. What size football will be used during games?
+**Q. What size football will be used during games?**<br>
 A. 1st-2nd grade will use a Pee-Wee sized ball. 3rd-6th grade will use a Junior sized ball.
 
-Q. How long are evaluations?
-A. Players are typically in and out of evaluations in 1 hour or less.
+**Q. How long are evaluations?**<br>
+A. Players are typically in and out of evaluations within 1 hour or less.
 
-Q. Can baseball cleats be worn in place of football cleats?
+**Q. Can baseball cleats be worn in place of football cleats?**<br>
 A. Yes, many players choose to wear their baseball cleats during the season.
 
-Q. Do all players have the same colored jersey?
+**Q. Do all players have the same colored jersey?**<br>
 A. Yes, all players have the same colored jersey. Each jersey is reversible, and the color worn on game day will be determined by the home/away team.
 
-Q. What comes with my player box?
+**Q. What comes with my player box?**<br>
 A. A reversible jersey, shorts and a flag belt.
 
-Q. When are games held?
+**Q. When are games held?**<br>
 A. All games are held on Saturdays.
 
-Q. How often do teams practice?
+**Q. How often do teams practice?**<br>
 A. Teams are required to practice once a week (Monday-Thursday) for 1 hour. Coaches will often speak to the team and set up and additional practices.
 
-Q. Where are games and practices held?
+**Q. Where are games and practices held?**<br>
 A.  All league games and practices are held at Sierra View Elementary.  It is mandatory for teams to hold their league practice (once a week) at Sierra View.  Additional practices scheduled by coaches may be held off site.
 
 ### Flag Football Important Dates
