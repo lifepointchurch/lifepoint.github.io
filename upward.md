@@ -10,14 +10,21 @@ published: true
 <a class="upward-register-btn" href="https://registration.upward.org/UPW84132">REGISTER NOW</a>
 
 ## FLAG FOOTBALL FALL LEAGUE 2023
-### BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
+### BOYS AND GIRLS, GRADES 1-6: 
+Including kindergartener's born before 6/30/17
 
-Price: $125/player (sibling discounts available)<br>
+Price: $125/player (sibling discounts available)
+
 HEAD COACHES: All head coaches will receive a **discount code,** waiving all player fees. If interested in being a head coach, please contact the league PRIOR to registering.
 
 Includes: 8 game season, reversible jersey, shorts and flag belts
 
 **REGISTRATION ENDS JULY 8, 2023**
+
+**Flag Football Location:**<br>
+Sierra View Elementary School<br>
+1323 E J Street<br>
+Oakdale, CA 95361
 
 ### FAQs
 **Q. Can my child play soccer/baseball and flag football?**<br>
@@ -66,9 +73,8 @@ A.  All league games and practices are held at Sierra View Elementary.  It is ma
 
 
 
-## VOLLEYBALL SPRING LEAGUE 2023
+# VOLLEYBALL SPRING LEAGUE 2023
 	Registration is closed.  Volleyball season is underway.
-### BOYS AND GIRLS, GRADES 1-8
 
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
