@@ -12,6 +12,7 @@ published: true
 ## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
 
 **REGISTRATION IS CLOSED**
+Season: August 21 - October 28, 2023
 
 **Flag Football Location:**<br>
 Sierra View Elementary School<br>
@@ -67,6 +68,7 @@ A.  All league games and practices are held at Sierra View Elementary.  It is ma
 
 # VOLLEYBALL SPRING LEAGUE 2024
 	Registration will open in Dec/Jan.
+    Season: March - May 2024
 
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
