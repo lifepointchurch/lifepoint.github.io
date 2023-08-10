@@ -11,8 +11,8 @@ published: true
 # FLAG FOOTBALL FALL LEAGUE 2023
 ## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
 
-**REGISTRATION IS CLOSED**
-Season: August 21 - October 28, 2023
+**REGISTRATION IS CLOSED**<br>
+When: August 21 - October 28, 2023
 
 **Flag Football Location:**<br>
 Sierra View Elementary School<br>
@@ -67,9 +67,9 @@ A.  All league games and practices are held at Sierra View Elementary.  It is ma
 
 
 # VOLLEYBALL SPRING LEAGUE 2024
-1st - 8th grade: Boys and Girls
-	Registration will open in Dec/Jan.
-    Season: March - May 2024
+BOYS AND GIRLS, GRADES 1-8<br>
+	Registration will open in Dec/Jan.<br>
+    When: March - May 2024
 
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
