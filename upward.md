@@ -7,7 +7,6 @@ published: true
 
 # Oakdale Upward Sports
 
-<a class="upward-register-btn" href="https://registration.upward.org/UPW84132">REGISTER NOW</a>
 
 # FLAG FOOTBALL FALL LEAGUE 2023
 ## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
