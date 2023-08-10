@@ -67,6 +67,7 @@ A.  All league games and practices are held at Sierra View Elementary.  It is ma
 
 
 # VOLLEYBALL SPRING LEAGUE 2024
+1st - 8th grade: Boys and Girls
 	Registration will open in Dec/Jan.
     Season: March - May 2024
 
