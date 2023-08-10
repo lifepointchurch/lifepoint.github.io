@@ -12,12 +12,7 @@ published: true
 # FLAG FOOTBALL FALL LEAGUE 2023
 ## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
 
-Price: $125/player (sibling discounts available)<br>
-Includes: 8 game season, reversible jersey, shorts and flag belts
-
-_**HEAD COACHES:**_ All head coaches will receive a **discount code,** waiving all player fees. If interested in being a head coach, please contact the league PRIOR to registering.
-
-**REGISTRATION ENDS JULY 8, 2023**
+**REGISTRATION IS CLOSED**
 
 **Flag Football Location:**<br>
 Sierra View Elementary School<br>
@@ -71,31 +66,15 @@ A.  All league games and practices are held at Sierra View Elementary.  It is ma
 
 
 
-# VOLLEYBALL SPRING LEAGUE 2023
-	Registration is closed.  Volleyball season is underway.
+# VOLLEYBALL SPRING LEAGUE 2024
+	Registration will open in Dec/Jan.
 
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
 400 S Maag Ave<br>
 Oakdale, CA 95361
 
-This is a Saturday only league that focuses on fundamentals.
-
-**There is a short practice/warm-up before each game. There are no other practices
-during the week.**
-
-**LEAGUE BEGINS SATURDAY, MARCH 18, 2023**
-
-League Dates (times can be found of your Team Page):
-
-- 3/18/2023
-- 3/25/2023
-- 4/1/2023
-- 4/22/2023
-- 4/29/2023
-- 5/6/2023
-- 5/13/2023
-- 5/20/2023
+This is a clinic/game style league that focuses on fundamentals.
 
 
 ### About
