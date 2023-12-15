@@ -41,7 +41,7 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 ## BOYS AND GIRLS, Grades 5th-8th 
 ### Spring Volleyball League 2024
 
-**About:** Players will practice 1x each week. Games will be played on Saturdays.  See important dates listed below.
+**About:** Players will practice 1x each week (Tuesdays). Games will be played on Saturdays.  See important dates listed below.
 
 **Fees:** Grades 5th-8th $125  - Includes: 2 clinics, 5 games, 1 playoff/tournament; a long-sleeved jersey (girl/women) OR a short-sleeved jersey (boy/men) and volleyball. Non-refundable
 
