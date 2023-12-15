@@ -7,12 +7,65 @@ published: true
 
 # Oakdale Upward Sports
 
+## VOLLEYBALL SPRING 2024
 
-# FLAG FOOTBALL FALL LEAGUE 2023
-## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/17
+**Volleyball Location:**<br>
+Oakdale Junior High School<br>
+400 S Maag Ave<br>
+Oakdale, CA 95361
+
+## BOYS AND GIRLS, Grades 1st-4th
+
+This is a once a week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
+
+### Clinic Dates are as follows:
+March 14
+March 21
+March 28
+April 11
+April 18
+April 25
+May 2
+May 8 - Note, this is a Wednesday
+
+**Fees:** Grades 1st-4th $100  - 8 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved t-shirt (boy/men) and volleyball. Non-refundable.
+
+Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
+
+**Volunteers needed:**  Volunteers are needed to help run drills as players break into smaller groups.  All skills will be demonstrated by Coach Joceyln prior to groups breaking out.  When registering, please sign up as a “coach.”  
+
+**Picture Day:** Picture Day will be held on April 13.  All players are encouraged to come and get an individual player or buddy picture. No team pictures will be taken. 
+
+
+## BOYS AND GIRLS, Grades 5th-8th 
+### Spring Volleyball League 2024
+
+About: Players will practice 1x each week. Games will be played on Saturdays.  See important dates listed below.
+
+**Fees:** Grades 4th-8th $125  - Includes: 2 clinics, 5 games, 1 playoff/tournament; a long-sleeved jersey (girl/women) OR a short-sleeved jersey (boy/men) and volleyball. Non-refundable
+
+**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 16 following the player clinic.
+
+**MARCH 16 AND MARCH 23 CLINIC DAYS**
+Clinic days will give players an opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games.  Players will be evaluated during this time and placed on a team accordingly.
+
+**Important Dates:**
+March 16 and 23 - Clinic
+March 16  - Mandatory Coach Meeting / Skills Training
+March 25 - Team rosters will be distributed
+March 26 - Team practices begin. Timeslots will be between 5 - 7 pm
+April 13 - Games begin
+April 13 - Picture Day
+May 18 - Playoffs / Tournament
+
+Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
+
+
+# FLAG FOOTBALL FALL LEAGUE 2024
+## BOYS AND GIRLS, GRADES 1-6: Including kindergartener's born before 6/30/18
 
 **REGISTRATION IS CLOSED**<br>
-When: August 21 - October 28, 2023
+When: August 21 - October 28, 2024
 
 **Flag Football Location:**<br>
 Sierra View Elementary School<br>
@@ -55,28 +108,6 @@ A. Teams are required to practice once a week (Monday-Thursday) for 1 hour. Coac
 
 **Q. Where are games and practices held?**<br>
 A.  All league games and practices are held at Sierra View Elementary.  It is mandatory for teams to hold their league practice (once a week) at Sierra View.  Additional practices scheduled by coaches may be held off site.
-
-### Flag Football Important Dates
-- July 8 - Evaluations
-- July 13 - Make-up Evaluations
-- August 2 - Draft Day
-- August 21 - Practices Begin
-- August 26 - Picture Day
-- September 9 - Games Begin
-
-
-
-# VOLLEYBALL SPRING LEAGUE 2024
-BOYS AND GIRLS, GRADES 1-8<br>
-	Registration will open in Dec/Jan.<br>
-    When: March - May 2024
-
-**Volleyball Location:**<br>
-Oakdale Junior High School<br>
-400 S Maag Ave<br>
-Oakdale, CA 95361
-
-This is a clinic/game style league that focuses on fundamentals.
 
 
 ### About
