@@ -7,8 +7,6 @@ published: true
 
 <iframe src="https://open.spotify.com/embed/playlist/1pGfcBLr0Nq2znP5g1iRFj" width="300" height="80" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
 
-This is a test
-
 ### Joy To The World
 
 Joy to the world, the Lord is come<br>
