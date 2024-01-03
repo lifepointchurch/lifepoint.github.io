@@ -38,7 +38,7 @@ order: 1
 </div>
 <div class="row">
 <div class="col-6 cabin-profile">
-  <div class="cabin-profile-image" style="background-image: url(https://asset.cloudinary.com/deqkp2xjs/c5dc647f2c8427ef03d1fb10a36c0a43);background-position: center 15%"></div>
+  <div class="cabin-profile-image" style="background-image: url(https://res.cloudinary.com/deqkp2xjs/image/upload/v1704314309/images/jenn.jpg);background-position: center 40%"></div>
   <div class="cabin-profile-title">Jennifer Harris</div>
   <div class="cabin-profile-label">Assistant</div>
   <div class="cabin-profile-description">Jennifer is responsible for communication of the church bulletin and weekly upkeep of the church and classrooms. She has been married to her husband Nolan for over 25 years has a son Nolan and step daughter Ashlee. Jennifer likes spending time praying with others, enjoys a good cup of tea and staying involved in the community. She loves nature and gardening.</div>
