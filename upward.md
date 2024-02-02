@@ -60,7 +60,7 @@ Clinic days will give players an opportunity to learn basic volleyball skills.  
 - March 16 and 23 - Clinic
 - March 16  - Mandatory Coach Meeting / Skills Training
 - March 25 - Team rosters will be distributed
-- March 26 - Team practices begin. Timeslots will be between 5 - 7 pm
+- March 26 - Team practices begin. Timeslots will be between 5 - 8 pm
 - April 13 - Games begin
 - April 13 - Picture Day
 - May 18 - Playoffs / Tournament
