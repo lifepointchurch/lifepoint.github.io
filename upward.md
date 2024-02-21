@@ -21,7 +21,8 @@ Oakdale, CA 95361
 This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
 
 **Clinic Dates are as follows:**
-Timeslots will be between 5 - 7 pm
+Times: 	1st-2nd Grade - 5-6pm
+		3rd-4th Grade - 6-7:30pm
 - March 14
 - March 21
 - March 28
@@ -51,14 +52,17 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 
 **Fees:** Grades 5th-8th $125  - Includes: 2 clinics, 5 games, 1 playoff/tournament; a long-sleeved jersey (girl/women) OR a short-sleeved jersey (boy/men) and volleyball. Non-refundable
 
-**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 16 following the player clinic.
+**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 16 following the player clinic from 1-2pm.
 
 **MARCH 16 AND MARCH 23 CLINIC DAYS**
+5th-6th Grade: 9-10:45am
+7th-8th Grade: 11am-12:45pm
+
 Clinic days will give players an opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games.  Players will be evaluated during this time and placed on a team accordingly.
 
 **Important Dates:**
 - March 16 and 23 - Clinic
-- March 16  - Mandatory Coach Meeting / Skills Training
+- March 16  - Mandatory Coach Meeting / Skills Training: 1-2pm
 - March 25 - Team rosters will be distributed
 - March 26 - Team practices begin. Timeslots will be between 5 - 8 pm
 - April 13 - Games begin
