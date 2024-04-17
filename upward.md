@@ -8,7 +8,11 @@ published: true
 # Oakdale Upward Sports
 
 # FLAG FOOTBALL FALL LEAGUE 2024
-BOYS AND GIRLS, GRADES 1-8: Including kindergartener's born before 6/30/18<br>
+
+**REGISTRATION CLOSES JUNE 29, 2024**<br>
+
+**BOYS AND GIRLS, GRADES 1-8:** Including kindergartener's born before 6/30/18<br>
+When: August 19 - October 28, 2024<br>
 Fees: $130 per player (sibling discounts available)<br>
 Includes: Reversible jersey and shorts<br>
 **NOTE: Each division has a LIMITED NUMBER of available spots.  Waiting lists will form once filled.**
@@ -18,9 +22,6 @@ Includes: Reversible jersey and shorts<br>
 3rd-4th Grade<br>
 5th-6th Grade<br>
 7th-8th Grade<br>
-
-**REGISTRATION CLOSES JUNE 29, 2024**<br>
-When: August 19 - October 28, 2024
 
 **Flag Football Location:**<br>
 Sierra View Elementary School<br>
