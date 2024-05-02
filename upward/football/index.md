@@ -1,7 +1,7 @@
 ---
 layout: upward
 parentPage: upward
-title: Football
+title: Flag Football
 nav_title: Football
 published: true
 order: 1
