@@ -16,9 +16,9 @@ order: 1
 **REGISTRATION CLOSES JUNE 29, 2024**<br>
 
 **BOYS AND GIRLS, GRADES 1-8:** Including kindergartener's born before 6/30/18<br>
-When: August 19 - October 28, 2024<br>
+When: August 19 - October 26, 2024<br>
 Fees: $130 per player (sibling discounts available)<br>
-Includes: Reversible jersey and shorts<br>
+Includes: 8 game season, reversible jersey and shorts<br>
 **NOTE: Each division has a LIMITED NUMBER of available spots.  Waiting lists will form once filled.**
 
 **Division Breakdown:**<br>
@@ -39,6 +39,7 @@ Oakdale, CA 95361
 - August 19, 2024 - Practices Begin
 - August 24 - Picture Day
 - September 7, 2024 - Games Begin
+- October 26, 2024 - Last game
 
 ### FAQs
 **Q. Can my child play soccer/baseball and flag football?**<br>
