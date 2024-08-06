@@ -11,9 +11,7 @@ order: 1
 
 # FLAG FOOTBALL FALL LEAGUE 2024
 
-<a class="upward-register-btn" href="https://registration.upward.org/UPW86208">REGISTER NOW</a>
-
-**REGISTRATION CLOSES JUNE 29, 2024**<br>
+**REGISTRATION CLOSED**<br>
 
 **BOYS AND GIRLS, GRADES 1-8:** Including kindergartener's born before 6/30/18<br>
 When: August 19 - October 26, 2024<br>
@@ -33,9 +31,7 @@ Sierra View Elementary School<br>
 Oakdale, CA 95361
 
 **Important Dates:**
-- June 29, 2024 - Player Evaluations
-- July 2, 2024 - Make-up Evaluations
-- July 24, 2024 - Draft Day (Coaches Only)
+- August 14, 2024 - Coach Meeting (Coaches Only)
 - August 19, 2024 - Practices Begin
 - August 24 - Picture Day
 - September 7, 2024 - Games Begin
