@@ -18,8 +18,9 @@ setlister:        http://setlister.lifepointoakdale.org/setlists
 
 tel:              1-209-581-2218
 phone:            (209) 581-2218
-service_time_1:   9:30am Connect Time
-service_time_2:   10:00am Worship Service
+service_time_1:   8:45am Worship Service
+service_time_2:   9:30am Connect Time
+service_time_3:   10:00am Worship Service
 email:            lifepointchurchoakdale@gmail.com
 email_prefix:     lifepointchurchoakdale
 email_suffix:     gmail.com
@@ -28,4 +29,4 @@ city:             Oakdale, CA
 zipcode:          95361
 mailing_address:  P.O. Box 1172
 quote:            Jesus said "I have come that they may have life, and have it to the full" John 10:10 (NIV)
-copyright:        © LifePoint Church 2023
+copyright:        © LifePoint Church 2024

@@ -10,6 +10,7 @@ published: true
 
 **Sunday Service**
 
+8:45am Worship Service<br>
 9:30am Connect Time<br>
 10:00am Worship Service
 
