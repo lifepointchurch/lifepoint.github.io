@@ -20,56 +20,63 @@ Oakdale, CA 95361
 
 **REGISTRATION CLOSED**
 
-This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
+This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
 
 **Clinic Dates are as follows:**<br>
 	1st-2nd Grade - 5:00-6:00pm<br>
 	3rd-4th Grade - 6:00-7:30pm
-- March 14
-- March 21
-- March 28
-- April 11
-- April 18
-- April 25
-- May 2
-- May 8 - Wednesday
+- March 6
+- March 13
+- March 20
+- March 27
+- April 3
+- April 10
+- April 17 - Start times wil be pushed back 30 minutes.
 
 
-**Fees:** Grades 1st-4th $100  - 8 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved t-shirt (boy/men) and volleyball. Non-refundable.
+**Fees:** Grades 1st-4th $100  - 7 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved t-shirt (boy/men) and volleyball. Non-refundable.
 
 Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
 
 **Volunteers needed:**  Volunteers are needed to help run drills as players break into smaller groups.  All skills will be demonstrated by Coach Joceyln prior to groups breaking out.  When registering, please sign up as a “coach.”  
 
-**Picture Day:** Picture Day will be held on _April 13_.  All players are encouraged to come and get an individual player or buddy picture. No team pictures will be taken. 
+**Picture Day:** Picture Day will be held on _March 15_.  All players are encouraged to come and get an individual player or buddy picture. No team pictures will be taken. 
 
 
 ## BOYS AND GIRLS, Grades 5th-8th
 
-### Spring Volleyball League 2024
+### Spring Volleyball League 2025
 
 **REGISTRATION CLOSED**
 
-**About:** Players will practice 1x each week (Tuesdays and Wednesdays). Games will be played on Saturdays.  See important dates listed below.
+**About:** Players will practice 1x each week (mainly Tuesdays and Wednesdays). Games will be played on Saturdays.  See important dates listed below.
 
 **Fees:** Grades 5th-8th $125  - Includes: 2 clinics, 5 games, 1 playoff/tournament; a long-sleeved jersey (girl/women) OR a short-sleeved jersey (boy/men) and volleyball. Non-refundable
 
-**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 16 following the player clinic from 1-2pm.
+**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 8, 2025 following the player clinic at 3pm.
 
-**MARCH 16 AND MARCH 23 CLINIC DAYS**<br>
-5th-6th Grade: 9-10:45am<br>
-7th-8th Grade: 11am-12:45pm
+**MARCH 1 CLINIC**<br>
+5th-6th Grade (A-K): 9-10:00am<br>
+5th-6th Grade (L-Z): 10:00am-11:00pm<br>
+7th-8th Grade (A-K): 11:00am-12:00pm<br>
+7th-8th Grade (L-Z): 12:00pm-1:00pm
+
+**MARCH 8 CLINIC**<br>
+5th-6th Grade (TBD): 9-10:00am<br>
+5th-6th Grade (TBD: 10:00am-11:00pm<br>
+7th-8th Grade (TBD): 11:00am-12:00pm<br>
+7th-8th Grade (TBD): 12:00pm-1:00pm
 
 Clinic days will give players an opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games.  Players will be evaluated during this time and placed on a team accordingly.
 
 **Important Dates:**
-- March 16 and 23 - Clinic
-- March 16  - Mandatory Coach Meeting / Skills Training: 1-2pm
-- March 25 - Team rosters will be distributed
-- March 26 - Team practices begin. Timeslots will be between 5 - 8 pm
-- April 13 - Games begin
-- April 13 - Picture Day
-- May 18 - Playoffs / Tournament
+- March 1 and 8 - Clinics
+- March 8  - Mandatory Coach Meeting / Skills Training: 3pm
+- March 9 - Team rosters will be distributed
+- March 10 - Team practices begin. Timeslots will be between 5 - 8 pm
+- March 15 - Games begin
+- March 15 - Picture Day
+- April 19 - Playoffs / Tournament
 
 Players must provide their own knee-pads and black shorts. Indoor court shoes are recommended.
 
