@@ -18,7 +18,7 @@ Oakdale, CA 95361
 
 ## BOYS AND GIRLS, Grades 1st-4th
 
-**REGISTRATION CLOSED**
+**REGISTRATION OPENING SOON**
 
 This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
 
@@ -47,7 +47,7 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 
 ### Spring Volleyball League 2025
 
-**REGISTRATION CLOSED**
+**REGISTRATION OPENING SOON**
 
 **About:** Players will practice 1x each week (mainly Tuesdays and Wednesdays). Games will be played on Saturdays.  See important dates listed below.
 
@@ -56,13 +56,13 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 **Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 8, 2025 following the player clinic at 3pm.
 
 **MARCH 1 CLINIC**<br>
-5th-6th Grade (A-K): 9-10:00am<br>
+5th-6th Grade (A-K): 9:00am-10:00am<br>
 5th-6th Grade (L-Z): 10:00am-11:00pm<br>
 7th-8th Grade (A-K): 11:00am-12:00pm<br>
 7th-8th Grade (L-Z): 12:00pm-1:00pm
 
 **MARCH 8 CLINIC**<br>
-5th-6th Grade (TBD): 9-10:00am<br>
+5th-6th Grade (TBD): 9:00am-10:00am<br>
 5th-6th Grade (TBD: 10:00am-11:00pm<br>
 7th-8th Grade (TBD): 11:00am-12:00pm<br>
 7th-8th Grade (TBD): 12:00pm-1:00pm
