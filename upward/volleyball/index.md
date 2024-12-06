@@ -18,7 +18,7 @@ Oakdale, CA 95361
 
 ## BOYS AND GIRLS, Grades 1st-4th
 
-**REGISTRATION OPENING SOON**
+<a class="upward-register-btn" href="https://registration.upward.org/UPW87810">REGISTER NOW</a>
 
 This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
 
@@ -47,7 +47,7 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 
 ### Spring Volleyball League 2025
 
-**REGISTRATION OPENING SOON**
+<a class="upward-register-btn" href="https://registration.upward.org/UPW87815">REGISTER NOW</a>
 
 **About:** Players will practice 1x each week (mainly Tuesdays and Wednesdays). Games will be played on Saturdays.  See important dates listed below.
 
