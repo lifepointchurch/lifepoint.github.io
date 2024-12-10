@@ -26,13 +26,13 @@ This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses o
 	1st-2nd Grade - 5:00-6:00pm<br>
 	3rd-4th Grade - 6:00-7:30pm
 - March 6
-- March 13
+- March 14 - Start times will be pushed back 30 minutes.
 - March 20
 - March 27
 - April 3
 - April 10
 - April 17 - Start times wil be pushed back 30 minutes.
-
+*Dates and times may vary based upon gym availability.
 
 **Fees:** Grades 1st-4th $100  - 7 weeks, includes a long-sleeved jersey (girl/women) OR a short-sleeved t-shirt (boy/men) and volleyball. Non-refundable.
 
@@ -66,6 +66,8 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 5th-6th Grade (TBD: 10:00am-11:00pm<br>
 7th-8th Grade (TBD): 11:00am-12:00pm<br>
 7th-8th Grade (TBD): 12:00pm-1:00pm
+
+*Dates and times may vary based upon gym availability.
 
 Clinic days will give players an opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn Volleyball fundamentals and social skills through a series of instructional circuits and developmental games.  Players will be evaluated during this time and placed on a team accordingly.
 
