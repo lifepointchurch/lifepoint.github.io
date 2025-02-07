@@ -27,4 +27,4 @@ Oakdale Upward Sports is so blessed by the service of volunteers, who help ensur
 
 For more information on registration and league details email [oakdaleupwardsports@gmail.com](mailto:oakdaleupwardsports@gmail.com) or call/text Vanessa Kesterson at [(209) 327-4838](tel:+12093274838).
 
-Be sure to check out our [Facebook Group](https://www.facebook.com/groups/190504948346754/)!
+Be sure to check out our [Facebook Group](https://www.facebook.com/groups/190504948346754/)
