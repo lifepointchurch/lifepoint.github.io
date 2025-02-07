@@ -13,7 +13,6 @@ order: 2
 
 ## REGISTRATION IS CLOSED
 
-
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
 400 S Maag Ave<br>
