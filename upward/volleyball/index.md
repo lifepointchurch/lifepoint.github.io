@@ -11,6 +11,9 @@ order: 2
 
 # VOLLEYBALL SPRING 2025
 
+## REGISTRATION IS CLOSED
+
+
 **Volleyball Location:**<br>
 Oakdale Junior High School<br>
 400 S Maag Ave<br>
@@ -45,13 +48,11 @@ Players must provide their own knee-pads and black shorts. Indoor court shoes ar
 
 ### Spring Volleyball League 2025
 
-<a class="upward-register-btn" href="https://registration.upward.org/UPW87815">REGISTER NOW</a>
-
 **About:** Players will practice 1x each week (mainly Tuesdays and Wednesdays). Games will be played on Saturdays.  See important dates listed below.
 
 **Fees:** Grades 5th-8th $125  - Includes: 2 clinics, 5 games, 1 playoff/tournament; a long-sleeved jersey (girl/women) OR a short-sleeved jersey (boy/men) and volleyball. Non-refundable
 
-**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 8, 2025 following the player clinic at 3pm.
+**Coaches Needed:** Head Coaches (only) are eligible for a player discount. Please reach out to Vanessa at (209) 327-4838 prior to registering.  _NOTE:_ Mandatory Coach skills training / meeting will be held March 1, 2025 following the player clinic at 1:15pm.
 
 **MARCH 1 CLINIC**<br>
 5th-6th Grade (A-K): 9:00am-10:00am<br>
@@ -69,7 +70,7 @@ Clinic days will give players an opportunity to learn basic volleyball skills.  
 
 **Important Dates:**
 - March 1 and 8 - Clinics
-- March 8  - Mandatory Coach Meeting / Skills Training: 3pm
+- March 1  - Coaches ONLY: Mandatory Coach Meeting / Skills Training: 1:15pm
 - March 9 - Team rosters will be distributed
 - March 10 - Team practices begin. Timeslots will be between 5 - 8 pm
 - March 15 - Games begin
