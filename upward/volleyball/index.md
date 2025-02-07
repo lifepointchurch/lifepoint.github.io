@@ -18,8 +18,6 @@ Oakdale, CA 95361
 
 ## BOYS AND GIRLS, Grades 1st-4th
 
-<a class="upward-register-btn" href="https://registration.upward.org/UPW87810">REGISTER NOW</a>
-
 This is a once-a-week (mainly Thursdays) **clinic-style program** that focuses on skills. Players will break off into various groups each week and be given the opportunity to learn basic volleyball skills.  With the use of age-appropriate curriculum and modified equipment, participants learn volleyball fundamentals and social skills through a series of instructional circuits and developmental games. 
 
 **Clinic Dates are as follows:**<br>
